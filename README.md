@@ -11,7 +11,7 @@
 
 # Download for free (3-day trial)
 
-▶︎ https://ensili.co/download/erazor/erazor-1.0.zip
+▶︎ https://ensili.co/download/erazor/erazor-1.2.zip
 
 # Official Website
 
